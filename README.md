@@ -1,8 +1,4 @@
-O Código Da Vinci – Dan Brown
 
-O Espião que Saiu do Frio – John le Carré
-
-Caçada ao Outubro Vermelho – Tom Clancy
 
 O Bourne Identity (Identidade Bourne) – Robert Ludlum
 
